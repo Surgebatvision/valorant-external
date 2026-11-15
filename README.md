@@ -1,0 +1,2 @@
+# valorant-external
+Download: soon
